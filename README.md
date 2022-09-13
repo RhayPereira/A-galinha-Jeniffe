@@ -1,4 +1,4 @@
-# A-galinha-Jeniffe
+# A-galinha-Jeniffer
 Jeniffer era uma galinha muito simpatica, gentil e debochada desde de que ela era um pintinho, ela vivia em seu galinheiro e conhecia todas as galinhas, galos e pintinhos que viviam por ali. Com o passar do tempo Jenniffer virou uma grande galinha e passou a conhecer melhor um galo chamado Junior. Junior era um galo muito atraente e bonito para Jeniffer, eles cresceram juntos no galinheiro. 
 
 Junior era o galo que todas as galinhas gostavam de paquerar, Jeniffer nem ligava até porque eles só viviam nk mesmo galinheiro, apesar de sempre se conhecerem eles nunca tinham se conhecido melhor. Certo dia Junior chama Jeniffer para dar uma volta pelo lado de fora do galinheiro.
